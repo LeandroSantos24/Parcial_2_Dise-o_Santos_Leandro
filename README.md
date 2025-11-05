@@ -1,1 +1,1 @@
-# Parcial_2_Dise-o_Santos_Leandro
+# Parcial_2_Diseño_Santos_Leandro
